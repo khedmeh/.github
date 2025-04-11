@@ -12,7 +12,7 @@ From daily essentials to specialized support, we are here to make your life easi
 
 If you have any questions or need assistance, don’t hesitate to reach out:
 
-**Email:** [info@khedmeh.io](mailto:info@khedmeh.ai)
+**Email:** [info@khedmeh.ai](mailto:info@khedmeh.ai)
 
 ---
 
